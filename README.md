@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bhaskarsinghbisht1@gmail.com**
 
-- ⚡ Fun fact **i am a quick learner but still not getting any opprtunity😂😂**
+- ⚡ Fun fact **NOTHIGN RIGHTNOW😂😂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
